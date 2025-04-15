@@ -1,5 +1,14 @@
 # ✨Get Me Off Your Fucking Mailing List✨
 
+
+**BORN TO CORRUPT**  
+**WINDOWS IS A FUCK**  
+**CHKDSK /x Em All 1989**  
+**I am trash dev**  
+**410,757,864,530 bugs commited**
+
+
+
 <!--
 **AnakinKeykubat/AnakinKeykubat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
