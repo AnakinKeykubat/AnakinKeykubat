@@ -1,11 +1,3 @@
-# ✨Get Me Off Your Fucking Mailing List✨
-
-
-**BORN TO CORRUPT**  
-**WINDOWS IS A FUCK**  
-**CHKDSK /x Em All 1989**  
-**I am trash dev**  
-**410,757,864,530 bugs commited**
 
 
 
